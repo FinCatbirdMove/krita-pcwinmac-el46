@@ -1,4 +1,4 @@
-# 
+# Ligero Krita flujo de trabajo para Mac OS | Mejor Krita flujo de trabajo para PC Windows. Con fusión HDR y tabla de contenidos — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
